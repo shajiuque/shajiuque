@@ -1,16 +1,26 @@
-### Hi there 👋
+欢迎光临~！
+=
+如简介所说，我是一般路过同人女杀酒雀，这只是个自我介绍！<br>
+08年女初，平平无奇的菜狗MMD制作者，并不会使用github<br>
+大概可以把这里理解成仅仅是提供无字数上限的自我介绍的地方？<br>
 
-<!--
-**shajiuque/shajiuque** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+关于我混的坑——
+-
+* **Project Sekai**<br>
+>**我喜欢嗑的：**<br>
+>瑞彰/瑞类/瑞杏/司瑞/みずまふ/みずみの/みずメイ/みずルカ<br>
+>冬彰/彰类彰/司彰/彰宁/彰えむ/彰爱/彰冰彰/新彰/彰洸彰<br>
+>司えむ/司类/司ミク/WS葱&25葱/LN冰&VBS冰<br>
+>**我不喜欢但是能看的：**<br>
+>まふ奏まふ/まふえな/心羽右/绘名右/瑞希右<br>
+>**我天雷的：**<br>
+>司右/冬弥右/彰绘/彰杏/みずえな<br>
+>**没提到的就是不喜欢也不雷，但是我更吃帝美多一点**
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* **MILGRAM**<br>
+>**我喜欢嗑的：**<br>
+>ES03/ES02/ES06/ES09ES<br>
+>0103/0302/0306/0703/0903/1003<br>
+>**我天雷的：**<br>
+>04相关所有/08一切爱情向<br>
+>**没提到的就是不喜欢也不雷**
