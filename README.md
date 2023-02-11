@@ -1,6 +1,6 @@
 欢迎光临~！ 
 =
-如简介所说，我是一般路过同人女杀酒雀，这只是个自我介绍！<br>
+其实我是一般路过语擦女杀酒雀，这只是个自我介绍！<br>
 08年女初，平平无奇的菜狗MMD制作者，并不会使用github<br>
 大概可以把这里理解成仅仅是提供无字数上限的自我介绍的地方？<br>
 
@@ -52,5 +52,5 @@
 <br>
 
 其他还有偶像梦幻祭、弹丸论破、文豪野犬之类的，但是都退坑了所以也无所谓…<br>
-下面是一些无关紧要的图（无关紧要？）<br>![ST2W{7M$`}MIN5S3HQ2I9}X](https://user-images.githubusercontent.com/125015308/218107938-55bd4e0a-415b-42f5-9e69-5bfc5733bc8c.png)
+下面是一些无关紧要的图（无关紧要？）<br>![MS7~TPT1%56SKOHSB{YBYCI](https://user-images.githubusercontent.com/125015308/218248856-64c680d6-b25c-4ae2-8c5d-4aaea7962a29.png)
 ![30D1EEF90D60DA8D84F772687C8CB317](https://user-images.githubusercontent.com/125015308/218108425-f83a7173-b431-4cd4-9cb5-79eb39801308.png)
