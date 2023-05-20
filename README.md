@@ -53,5 +53,5 @@
 <br>
 
 其他还有偶像梦幻祭、弹丸论破、文豪野犬之类的，但是都退坑了所以也无所谓…<br>
-下面是一些无关紧要的图（无关紧要？）<br>![MS7~TPT1%56SKOHSB{YBYCI](https://user-images.githubusercontent.com/125015308/218248856-64c680d6-b25c-4ae2-8c5d-4aaea7962a29.png)
-![30D1EEF90D60DA8D84F772687C8CB317](https://user-images.githubusercontent.com/125015308/218108425-f83a7173-b431-4cd4-9cb5-79eb39801308.png)
+下面是一些无关紧要的图（无关紧要？）<br>![QQ图片20230520160232](https://github.com/shajiuque/shajiuque/assets/125015308/b9c70755-4768-458b-abcc-c7d218cf9b89)
+![QQ图片20230520160240](https://github.com/shajiuque/shajiuque/assets/125015308/ed3286db-e2ac-4c4f-8ff9-87314eff98d9)
